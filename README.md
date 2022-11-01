@@ -1,0 +1,1 @@
+# UTS_NandaSatyaPutra_201910225386_PengolahanCitra_TF7A5
